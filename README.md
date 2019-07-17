@@ -4,7 +4,7 @@
 - [簡介](README.md)
 - [第一章：2006年9月 東京 七日](chapter1.md)
 - [第二章：2008年7月 京阪神奈姬路城 十四日](chapter2.md)
-- [第三章：](chapter3.md)
+- [第三章：2010年4月 京都 七日](chapter3.md)
 - [第四章：](chapter4.md)
 - [第五章：](chapter5.md)
 - [第六章：](chapter6.md)
