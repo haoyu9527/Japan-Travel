@@ -9,3 +9,7 @@
 當然前提還是必須要努力天天向上、多多祈禱：
 
 > Bitcoin to the moon！
+
+最後感謝大家的收看，可以告訴我你的想法，或者糾錯字，請到以下填寫：
+
+[https://forms.gle/ZgiH3d9h5a4ydJLq8](https://forms.gle/ZgiH3d9h5a4ydJLq8)
