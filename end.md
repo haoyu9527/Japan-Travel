@@ -10,6 +10,8 @@
 
 > Bitcoin to the moon！
 
-最後感謝大家的收看，可以告訴我你的想法，或者糾錯字，請到以下填寫：
+最後感謝大家的收看，可以告訴我你的想法，以及糾正錯字，潤飾語句
+
+請在[GitHub](https://github.com/haoyu9527/twelve-years-Japan-travel)上修正或者可以到以下填寫回饋單：
 
 [https://forms.gle/ZgiH3d9h5a4ydJLq8](https://forms.gle/ZgiH3d9h5a4ydJLq8)
